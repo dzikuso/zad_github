@@ -1,0 +1,1 @@
+Praca moj panie
